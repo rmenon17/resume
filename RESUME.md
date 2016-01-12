@@ -14,3 +14,7 @@ Surrey,BC V3T 0B7,
 * Worked with the firm leadership and the strategic management team in planning and execution of a new targeted ad campaign that led to the generation of new leads and increased market share by 10%.  
 * Led the execution of customer engagement campaigns and customer base management campaigns, working closely with a myriad of business partners to achieve objectives on time.  
 * Effectively managed the relationship with multiple agencies and external partners, providing the agencies and external partners with the tools to set them up for success and to do exceptional work.  
+###Sales and Marketing Analyst
+######RMA Consulting Inc; *Falls Church,Virginia*
+######May 2006 - September 2011
+*
